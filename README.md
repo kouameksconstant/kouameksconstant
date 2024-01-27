@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on  the new projets ...
 - 📫 How to reach me ...kouameksconstant/kouameksconstant
 - 😄 Pronouns: ...Constant
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: meet me at the top
 
 <!---
 kouameksconstant/kouameksconstant is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
